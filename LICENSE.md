@@ -1,4 +1,4 @@
-# 
+# Exclusif PDF-XChange Editor extensions pour Mac OS | Léger PDF-XChange Editor extensions pour PC Windows. Avec outils de collaboration et capture mobile des reçus — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
